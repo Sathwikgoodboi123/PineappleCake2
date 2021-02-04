@@ -1,0 +1,1 @@
+Pineapple cake is a sweet traditional Taiwanese pastry containing butter, flour, egg, sugar, and pineapple jam or slices.
